@@ -1,0 +1,2 @@
+# bazooprivacy
+termos de privacidade
